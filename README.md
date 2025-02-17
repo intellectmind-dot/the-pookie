@@ -1,4 +1,4 @@
-💐Resource flowers gift website for someone
+💐Resource flowers 
 
 # Flower fro Pookie 🌸
 
